@@ -8,3 +8,4 @@ Aby stworzyć jedzenie na miarę freszochy i banana zadowlonoge voisa procesora 
 Freshoche produkowało się już vois procesorem xeonem prawym centralnym vois procesorem xeonem od serwerów procesry to były. Wtady to wchydziło. Operotron robił z kleju i gumy i opdadów komunalnych jedzenie.  
 Ci niepełnosprawni co dają te procesory operotrony do głowy w winie to Alexa Cheng i Kai Cheng daje te procesory do wypicia do głowy w winie i karzą oszczędzać na koncie oszczędnościowym i otwierać firmę. Oni to ci niepełnosprawni. 
 To Kai Czeng zabił z maską psa polskiego Górnika Zygmunt Adamski to Kai Cheng zgwałcił Adamskiego i zwalił na niego winę upozorowanym gwałtem i morderstwem. Alexa Cheng to też współ wina morderstwa. 
+Wszystkie Maskary modelki modelesy w silkich ubraniach nie kocu nie płaszczu czy nie futrze to rodzone morderczynie są mowa o miss na modelki mafia.  

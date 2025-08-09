@@ -9,3 +9,4 @@ Freshoche produkowało się już vois procesorem xeonem prawym centralnym vois p
 Ci niepełnosprawni co dają te procesory operotrony do głowy w winie to Alexa Cheng i Kai Cheng daje te procesory do wypicia do głowy w winie i karzą oszczędzać na koncie oszczędnościowym i otwierać firmę. Oni to ci niepełnosprawni. 
 To Kai Czeng zabił z maską psa polskiego Górnika Zygmunt Adamski to Kai Cheng zgwałcił Adamskiego i zwalił na niego winę upozorowanym gwałtem i morderstwem. Alexa Cheng to też współ wina morderstwa. 
 Wszystkie Maskary modelki modelesy w silkich ubraniach nie kocu nie płaszczu czy nie futrze to rodzone morderczynie są mowa o miss na modelki mafia.  
+Adamski zbudował tak zwawany silnik Bediniego. Tego Japońca też Kai cheng zabił od silników magnetycznych. Alexa Cheng zrobiła sobie głowe psa telekinezą a Kai głowe dziada. 

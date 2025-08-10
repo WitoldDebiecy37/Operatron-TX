@@ -18,3 +18,4 @@ Kai Cheng ma za układem słonecznym planetę Diakonie i tam mieszkają.
 Ja byłem kiedyś zakochany w Alexe Cheng była moim obiektem miłości. Ale ona jest wina. Alexa Cheng jest bardzo bogata. Oni też zabili japończyka od silkinków magnetycznych i innych elektryków. 
 Alexa Cheng jest nikim. 
 Zygmunt Adamski był i intresował się nielegalnymi sprawami z elektryki. 
+To pomocy zabiło Zygmunta Adamskiego pogotowie. 

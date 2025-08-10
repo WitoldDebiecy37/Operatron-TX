@@ -12,3 +12,4 @@ Wszystkie Maskary modelki modelesy w silkich ubraniach nie kocu nie płaszczu cz
 Adamski zbudował tak zwawany silnik Bediniego. Tego Japońca też Kai cheng zabił od silników magnetycznych. Alexa Cheng zrobiła sobie głowe psa telekinezą a Kai głowe dziada. 
 Oni mają ufo. 
 Kai Cheng i i Alexa Cheng to czesi w pracy w UK British publiszment aktor. 
+Kai Cheng projektował procesory operotrony. 

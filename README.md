@@ -11,3 +11,4 @@ To Kai Czeng zabił z maską psa polskiego Górnika Zygmunt Adamski to Kai Cheng
 Wszystkie Maskary modelki modelesy w silkich ubraniach nie kocu nie płaszczu czy nie futrze to rodzone morderczynie są mowa o miss na modelki mafia.  
 Adamski zbudował tak zwawany silnik Bediniego. Tego Japońca też Kai cheng zabił od silników magnetycznych. Alexa Cheng zrobiła sobie głowe psa telekinezą a Kai głowe dziada. 
 Oni mają ufo. 
+Kai Cheng i i Alexa Cheng to czesi w pracy w UK British publiszment aktor. 

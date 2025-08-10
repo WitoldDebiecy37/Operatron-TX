@@ -14,3 +14,4 @@ Oni mają ufo.
 Kai Cheng i i Alexa Cheng to czesi w pracy w UK British publiszment aktor. 
 Kai Cheng projektował procesory operotrony. 
 Alexa Cheng ma maszynę czasu. Dlatego jest anonimowa. 
+Kai Cheng ma za układem słonecznym planetę Diakonie i tam mieszkają. 

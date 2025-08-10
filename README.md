@@ -15,3 +15,4 @@ Kai Cheng i i Alexa Cheng to czesi w pracy w UK British publiszment aktor.
 Kai Cheng projektował procesory operotrony. 
 Alexa Cheng ma maszynę czasu. Dlatego jest anonimowa. 
 Kai Cheng ma za układem słonecznym planetę Diakonie i tam mieszkają. 
+Ja byłem kiedyś zakochany w Alexe Cheng była moim obiektem miłości. Ale ona jest wina. Alexa Cheng jest bardzo bogata. Oni też zabili japończyka od silkinków magnetycznych i innych elektryków. 
